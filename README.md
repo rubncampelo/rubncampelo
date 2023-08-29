@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Rubén Campelo
+- 👀 I’m interested in writing, marketing and learning.
+- 🌱 I’m currently learning.
+- 📫 How to reach me: https://rubencampelo.com
